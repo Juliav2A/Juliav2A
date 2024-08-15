@@ -1,4 +1,4 @@
-![](https://tenor.com/bB7gl.gif)
+![](https://tenor.com/pt-BR/view/sylveon-gif-21438371)
 
 ### Bem vindo ao perfil!! Meu nome é Julia Vaz :D
 - 🔭 Estou estudando na [Alura](https://www.alura.com.br)
