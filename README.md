@@ -1,4 +1,4 @@
-!(https://tenor.com/bB7gl.gif)
+
 
 ###  Bem vindo ao perfil!! Meu nome é Julia Vaz :D
 - 🔭 Estou estudando na [Alura](https://www.alura.com.br)
@@ -9,5 +9,3 @@
 
 - Você pode entrar em contato comigo nesse email!
 - 00001119846481sp@aluno.educacao.sp.gov.br
-
-![](https://tenor.com/bXjsr.gif)
