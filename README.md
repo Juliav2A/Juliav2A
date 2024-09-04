@@ -3,13 +3,13 @@
 ### ִ ⋆˚✿.° Now playing: ִ ࣪𖤐
 
 
-  💎⋆.ೃ࿔*:･**Are you Satisfied?** by Marina and the Diamonds
+  [💎⋆.ೃ࿔*:･**Are you Satisfied?** by Marina and the Diamonds](https://youtu.be/VHi1kGbWo9Q?si=4CI41pQuo6y8bDQs)
 
   0:43────I─────3:19
 
 ↺͏͏           ◁◁͏͏       ll       ▷▷           ⋮≡
 
-   ▁ ▂ ▃ ▄ ▅ ▆
+ Volume:  ▁ ▂ ▃ ▄ ▅ ▆ 100%
 
 ╭──────༺♡༻───────────────╮
 
