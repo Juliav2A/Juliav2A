@@ -1,4 +1,4 @@
-![.](https://media.tenor.com/hhdfHB5ZQMUAAAAi/sylveon.gif)
+![.](https://64.media.tumblr.com/940f35b56f75df3ebe4bfe91ae4b1dab/tumblr_mr3cjpTHHd1s3bxc6o1_500.gif)
 
 ### ִ ⋆˚✿.° Now playing: ִ ࣪𖤐
 
@@ -21,7 +21,7 @@ Olá! Eu sou **Julia Vaz**!! 😆
 - 💻 Estou trabalhando com **JavaScript** e estou em constante evolução para me tornar uma desenvolvedora mais habilidosa.
 - 🚀 Este espaço é onde organizo e compartilho meus projetos, mostrando meu progresso e aprendizados.
 
-![Sylveon GIF](https://media1.tenor.com/m/zE4ozkXHGWAAAAAC/sylveon.gif)
+![Sylveon GIF](https://i.gifer.com/8K94.gif)
 
 - 📫 Quer entrar em contato? Me mande um e-mail: **00001119846481sp@aluno.educacao.sp.gov.br**
 
@@ -46,5 +46,5 @@ https://cursos.alura.com.br/user/00001119846481SP
 ## - 🌱 Desenvolvimento Pessoal:
 -Tenho interesse em entender e melhorar minhas próprias habilidades interpessoais e profissionais, com o objetivo de construir uma carreira sólida e gratificante no desenvolvimento de software e em outras áreas do meu interesse. Meu foco está em transformar desafios em oportunidades e aplicar o aprendizado em projetos reais para alcançar um impacto significativo.
 
-![pink](https://media1.tenor.com/m/i82rSZ048NAAAAAC/daily-reminder-pink.gif)
+![pink](https://tenor.com/pt-BR/view/rinmya-picmix-pokemon-gabite-gible-gif-17391812650118967102.gif)
 
