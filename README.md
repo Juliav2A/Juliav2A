@@ -3,7 +3,7 @@
 ### ִ ⋆˚✿.° Now playing: ִ ࣪𖤐
 
 
-  [💎⋆.ೃ࿔*:･**Are you Satisfied?** by Marina and the Diamonds](https://youtu.be/VHi1kGbWo9Q?si=4CI41pQuo6y8bDQs)
+  [💚⋆.ೃ࿔*:･**360** by Charli xcx](https://youtu.be/O_HoOpJ60C0?si=gq6ftjXzMYtFZj9B)
 
   0:43────I─────3:19
 
